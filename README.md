@@ -1,1 +1,0 @@
-# tripleten-statistical-data-analysis
